@@ -1,2 +1,21 @@
-# hello-word
-just my first repository
+demo of merging
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
+        
